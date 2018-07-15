@@ -45,7 +45,7 @@ Lista de apetrechos necessarios para os 10 dias de trekking.
 
 ### Bag Transfer
 
-MANDAR EMAIL PEDINDO PRECO DO BAG TRANSFER
+Fazer a cotacao do roteiro com: http://www.taxi-montblanc.com/index.php?lang=en
 
 ### Roteiro
 
